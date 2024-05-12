@@ -1,0 +1,1 @@
+Olá professora, aqui estou novamente, deixando claro como pede no enunciado que fiz esse belo contador de votos com a Jeryhane, e tambem deixando claro que os nomes envolvem gatos e especificamente gatos famosos que você pode pesquisar e nos dizer qual voc~e votaria para presidente do Brasil. Lhe desejo uma otima semana e ABRAÇO.
